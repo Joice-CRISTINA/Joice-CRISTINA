@@ -8,3 +8,6 @@ Meu nome e Joice Cristina Aparecida de Camargo.
 
   ### Voce pode entrar em contato comigo 📧
 -  joice.aparecida.camargo@escola.pr.gov.br
+
+
+![](https://media.tenor.com/sWzRJMCZWNwAAAAd/heizou-shikanoin-heizou.gif)
